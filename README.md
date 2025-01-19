@@ -1,4 +1,4 @@
-From February to May 2024, I participated in the Financial Analysis Training program. This experience greatly improved my skills. 
+Here are some mini projects I completed during my Financial Analysis Training program. 
 
 Here is some of the work I have done:
 
