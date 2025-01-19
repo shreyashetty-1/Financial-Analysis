@@ -1,4 +1,4 @@
-From February to May 2024, I completed the Invact Financial Analysis Training program, mastering Level 0 and accomplishing Module 9. This experience greatly improved my skills. 
+From February to May 2024, I did the Financial Analysis Training program, mastering Level 0 and accomplishing Module 9. This experience greatly improved my skills. 
 
 Here is some of the work I have done:
 
