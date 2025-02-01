@@ -1,6 +1,4 @@
-Here are some mini projects I completed during my Financial Analysis Training program. 
-
-Here is some of the work I have done:
+Here are some work I have done during my Financial Analysis Training program. 
 
 https://docs.google.com/spreadsheets/d/1Ie62J81dDZzyW_WoBgX4xzjm8H1rGSqivqAQMdt08EM/edit?usp=sharing 
 
