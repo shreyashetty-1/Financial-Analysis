@@ -1,4 +1,6 @@
-### Excel ### Financial Analysis ### Advanced Excel
+### Excel 
+### Financial Analysis
+### Advanced Excel
 
 https://docs.google.com/spreadsheets/d/1Ie62J81dDZzyW_WoBgX4xzjm8H1rGSqivqAQMdt08EM/edit?usp=sharing 
 
