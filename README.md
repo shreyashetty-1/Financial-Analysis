@@ -1,4 +1,4 @@
-### Excel 
+### Excel 📊
 ### Financial Analysis
 ### Advanced Excel
 
